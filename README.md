@@ -1,2 +1,2 @@
-# Platon201348.github.io
+# Platon201348.com
 Официальный сайт
